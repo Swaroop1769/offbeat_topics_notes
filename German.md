@@ -1,5 +1,3 @@
-eligible for appearing for A1 certification externally by us.
-
 all is clar - all is clear
 cristal clarr - crystal clear
 
